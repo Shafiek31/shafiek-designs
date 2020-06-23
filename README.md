@@ -1,2 +1,2 @@
-# shafiek-designs
+# shafieks-designs
 Alle designs staan hier
